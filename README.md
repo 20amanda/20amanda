@@ -2,7 +2,7 @@
 - 👀 Estou interessado em apreciar mais a vida
 - 🌱  Atualmente estudo no ensino médio
 - 💞️ Procuro colaborar em varias coias, gosto de ajudar.
-- 📫 vc me eguir nessa conta: @rs.amandinha_
+- 📫 vc me eguir nessa conta: @rr.branquinha_
 
 
 <!---
